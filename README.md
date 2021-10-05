@@ -2,4 +2,4 @@
 pp
 
 - changes from Askar
-- My part is done Ulan - HEyyyyy
+- My part is done Ulan - Changes to Medet from Ulan
